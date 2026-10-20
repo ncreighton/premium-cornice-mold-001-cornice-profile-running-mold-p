@@ -1,0 +1,2 @@
+# premium-cornice-mold-001-cornice-profile-running-mold-p
+Tired of mismatched cornice profiles and wasted material from unplanned running mold sequences? The Cornice Profile Running Mold Planner brings precision and order to your next trim installation.  This Notion template transforms chaotic project notes into a streamlined system for tracking every profile, run length, and joint location. With dedicate
